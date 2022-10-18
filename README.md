@@ -1,0 +1,2 @@
+# homework
+zeynep'e yardım
